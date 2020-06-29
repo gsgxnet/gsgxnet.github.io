@@ -7,9 +7,8 @@ The novel is constructed as a modern parallel to Homer’s Odyssey.
     
 A long read I would say
 
-## Ulysses follows or mirrors Homer's  Odyssey by characters  
+## Ulysses follows or mirrors Homers Odyssey by characters  
 
 - Telemachia
 - Odyssey
 - Nostus
-
