@@ -6,3 +6,10 @@ Stylistically dense and exhilarating, it is generally regarded as a masterpiece 
 The novel is constructed as a modern parallel to Homer’s Odyssey.
     
 A long read I would say
+
+## Ulysses follows or mirrors Homer's  Odyssey by characters  
+
+- Telemachia
+- Odyssey
+- Nostus
+
